@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ARIYENKHAN01
+je]e]hejeoeowjwhow)wkamsjei]e][hneje]e>rheow]- 👋 Hi, I’m @ARIYENKHAN01
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
@@ -10,3 +10,4 @@
 ARIYENKHAN01/ARIYENKHAN01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+>%>%>heji[][><<heiw*[><h<ie*rh<i[]<i<h<><]<hrhjsu>ehrieow/>/iehehr]e*`@ueshs8?h`neus
